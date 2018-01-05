@@ -23,3 +23,7 @@ https://goo.gl/dBxQ2F
 Moderator Ped:
 https://goo.gl/XWCrqn
 https://goo.gl/nfGZqp
+
+Proof I have consent to reupload:
+https://gyazo.com/5222c3ced3af1e9cdd2e5d29dd930135
+https://gyazo.com/1edc9d116b0150b92815330daadba68b
